@@ -1,6 +1,6 @@
 # Drift Support
 
-Need help with Drift? Contact: support@yourdomain.com
+Need help with Drift? Contact: driftappsupport@gmail.com
 
 ## FAQ
 
